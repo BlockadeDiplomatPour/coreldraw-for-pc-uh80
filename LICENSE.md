@@ -1,4 +1,4 @@
-# 
+# Enhance CorelDRAW for PC | CorelDRAW for Windows with smart CorelDRAW for PC | CorelDRAW for Windows Addon | grid-systems + vector-drawing, the #1 addon. Includes grid-systems and
 
 
 
